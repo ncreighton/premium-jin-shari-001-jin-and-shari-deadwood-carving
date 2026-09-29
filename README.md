@@ -1,0 +1,2 @@
+# premium-jin-shari-001-jin-and-shari-deadwood-carving
+Tired of ruining precious deadwood on your bonsai because you lack a reliable carving plan? This Notion template turns guesswork into a repeatable, step-by-step system.  The Jin and Shari Deadwood Carving Technique Guide eliminates the frustration of damaged trees and wasted material by organizing proven techniques, material selection, and safety p
